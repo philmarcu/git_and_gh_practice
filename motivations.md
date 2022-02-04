@@ -1,0 +1,1 @@
+The main thing thats making me change my career is actually to help my old career. I think if I had some direct coding experience I could find new projects & ideas available for me to make in the art / gaming industry. Code my own 2d game for fun, do weird digital art puzzle games etc.
